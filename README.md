@@ -15,3 +15,4 @@ Version Control is where it's at!
 -Carl Sagan
 
  ©2023 BearSAYS.com DBA: Bear Den Games
+ tgsauers@@gmail.com
